@@ -1,7 +1,7 @@
 
 # Here I manage my new Healthy life
 
-<----- DO IT FOR THAT BOY 	(⁄ ⁄•⁄ω⁄•⁄ ⁄) (´꒳`)♡
+<----- DO IT FOR REN-KUN 	(⁄ ⁄•⁄ω⁄•⁄ ⁄) (´꒳`)♡
 
 ## Exercise 40 Minutes ⏲️ 
 ## Intermittent Fasting 18 hs each day and sometimes 16hs
