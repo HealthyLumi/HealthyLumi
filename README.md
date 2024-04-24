@@ -5,6 +5,7 @@
 
 ## Exercise 40 Minutes ⏲️ 
 ## Intermittent Fasting 18 hs each day and sometimes 16hs
+### Objetive: 47 kg
 
 - 🟢 Sunday, Tuesday and Friday: Running and Walk
 - 🟣 Monday, Wednesday and Saturday: Can Academy Excercices
