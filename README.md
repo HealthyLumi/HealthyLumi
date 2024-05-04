@@ -8,8 +8,8 @@
 ### Objetive: 47 kg
 
 - 🟢 Sunday, Tuesday and Friday: Running and Walk
-- 🟣 Monday, Wednesday and Saturday: Can Academy Excercices
-- 🟠 Friday: Rest
+- 🟣 Monday, Wednesday and Saturday: Trab Academy Excercices
+- 🟠 Saturday: Rest
 
 
 | SUNDAY | MONDAY | TUESDAY | WEDNESDAY | THURSDAY | FRIDAY | SATURDAY |
